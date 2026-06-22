@@ -1,1 +1,7 @@
-
+- 👋 Hi, I’m @Xabier-Sardina
+- 🚀 I aim to collaborate with bright minds and positively impact the world
+- 🌱 I graduated from Princeton University in 2025 - majoring in Economics and Computer Science, and pursuing dual minors in Finance and Entrepreneurship
+- 📫 How to reach me: sardinaxabier@gmail.com or (818) 324 - 3704
+- 😄 Pronouns: He / Him
+- ⚡ Fun fact: I am Basque
+- 🙌 "Innovation is progress in the face of tradition"
